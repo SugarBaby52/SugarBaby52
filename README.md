@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @SugarBaby52
-- im interested in Someone who wants to spoil Me and help Me through college wait for the Dms sand holler at me
+- im interested in Someone who wants to spoil Me and help Me through college wait for the Dms and holler at me
 - 
